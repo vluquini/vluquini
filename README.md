@@ -1,5 +1,5 @@
 
-# 👋Hello! My name is  Vinícius, but you can call me Luquini!
+# 👋Hello! My name is Luquini!
 
 ## 💫 About Me:
 
